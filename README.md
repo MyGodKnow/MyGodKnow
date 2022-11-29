@@ -14,4 +14,4 @@ Chinese（中文）:
 - 📫 我的博客是：https://www.wgzdy.top/
 - 📫 我的两个邮箱分别是wgzdy@wgzdy.top和114514woguizhidaoya@gmail.com
 
-- I just can speak Chinese and Englishi, but my Englishi grade is not good:)
+- I just can speak Chinese and Englishi, but my English grade is not good:)
